@@ -1,1 +1,1 @@
-pinter banget 
+pinter banget deh
