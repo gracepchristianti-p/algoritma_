@@ -1,1 +1,1 @@
-apa aja orang pinter
+pinter banget deh
